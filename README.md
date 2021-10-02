@@ -1,1 +1,1 @@
-# Intern-Acadeny-
+# Intern-Acadeny-Educational Website
